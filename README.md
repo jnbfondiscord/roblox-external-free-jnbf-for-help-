@@ -1,2 +1,2 @@
-# roblox-external-free-jnbf-for-help-
-#free #external #roblox #cheat
+# roblox external free jnbf for help
+the reason of it being free cause its buggy
